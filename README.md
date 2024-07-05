@@ -6,7 +6,6 @@
 
 - 📫 How to reach me **shasthatyarla@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1DMf5gEvaWB94ObXY1eqLJ6_KRMTh9ESC/view?usp=sharing](https://drive.google.com/file/d/1DMf5gEvaWB94ObXY1eqLJ6_KRMTh9ESC/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
